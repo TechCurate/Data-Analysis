@@ -41,4 +41,4 @@ Reports also show that both the caretaker managers **Michael Carrick** and **Rya
 
 Reports also show that amongst the full-time appointed managers, both **Jose Mourinho** and **Eric Ten Hag** have comparable win rates (58% and 57% respectively), and multiple titles. They fared better amongst 8 managers that came in since 2013. Jose Mourinho won three titles and had better "goals against" per game than Eric Ten Hag had by the end of 2024 season. 
 
-However, Eric Ten Hag's number will change as he will continue into 2024-2025 season.
+However, Eric Ten Hag's number will change as he will continue into 2024-2025 season... and based on the report, the new owners (IENOS group) are right in sticking with him for another season.
